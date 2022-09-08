@@ -10,6 +10,6 @@ I’m looking to collaborate on pretty much anything that helps make the world a
 
 To reach me: Find me on LinkedIn at https://www.linkedin.com/in/nate-p-berry/ or feel free to shoot me a message anywhere. 
   
-If you see me out and about in the PNW, I'm the one software guy with the beard wearing plaid ;) 
+If you see me out and about in the PNW, I'm the one software guy with the moustache wearing plaid ;) 
 
 Cheers!
